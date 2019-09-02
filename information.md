@@ -10,7 +10,7 @@ Fill in your personal information and commit the changes with a meaningful commi
 
 * Research interests (5 keywords): migration, identity, civil conflict 
 
-* What you had for lunch today: trail mix
+* What you had for lunch today: candy corn
 
 
 
